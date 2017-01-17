@@ -12,12 +12,12 @@
 ```
 **Texto para Facebook**
 [Mês da Privacidade]
-.........
+......... 🚀👁🙇
 
 #privacymonth #privacidade #firefox #mozilla #mozillabrasil
 
 **Texto para Twitter**
-......... #privacymonth
+......... #privacymonth 🚀👁🙇
 
 **Texto para Blog**
 .........
